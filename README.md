@@ -1,2 +1,2 @@
 # OPWS
-OPWS för en svart person
+Du är en riktig neger morris
